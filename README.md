@@ -1,0 +1,1 @@
+Tables assignment for hertechtrail
